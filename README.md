@@ -1,1 +1,0 @@
-# aetheria-synthesis.github.io
